@@ -1,3 +1,4 @@
 # lab-practice
-I am not having fun at all
+FUCK YOU
+a lot of things can happen in nowhere.
 
